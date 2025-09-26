@@ -37,5 +37,5 @@ Google Colab
 ## 👤 Author
 
 **Your Name** ✨\
-[GitHub](https://github.com/your-username) \|
-[Instagram](https://instagram.com/your-instagram)
+[ANMOLSANDHU0065](https://github.com/ANMOLSANDHU0065)
+[imsndhu07](https://instagram.com/imsndhu07)
